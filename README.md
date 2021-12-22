@@ -1,0 +1,1 @@
+# VeriYaplilari_Odev2
